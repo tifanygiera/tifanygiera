@@ -1,4 +1,4 @@
-### Hi there I'm Aginda 👋  [tifanygiera] (https://www.instagram.com/aginda_fadhillah/)Username itu nama samaran hehe 
+### Hi there I'm Aginda 👋  [tifanygiera] (https://www.instagram.com/aginda_fadhillah/) Username itu nama samaran hehe 
 
 <!--
 **tifanygiera/tifanygiera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
