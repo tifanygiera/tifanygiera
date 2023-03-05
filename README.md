@@ -1,4 +1,4 @@
-# Hi there I'm Aginda 👋 [tifanygiera](https://www.instagram.com/aginda_fadhillah) itu nama samaran hehe 
+# Hi there I'm Aginda 👋 [tifanygiera](https://www.instagram.com/aginda_fadhillah) it's a pseudonym xixi 
 ## About Me
 My name is Aginda. I was born in [Palembang City](https://palembang.go.id)  and now I live in Palembang one of city in [Indonesia](https://indonesia.go.id) , to continue my study at [Multi data Palembang University](https://mdp.ac.id) .
 
